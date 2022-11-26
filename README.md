@@ -1,5 +1,5 @@
 # 💫 About Me:
-Ben Furkan <br>17 yaşında junior developer 'ım<br>
+Ben Furkan <br>18 yaşında junior developer 'ım<br>
 
 
 ## 🌐 Socials:
